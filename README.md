@@ -1,1 +1,0 @@
-# scoozi-bogacs.github.io
